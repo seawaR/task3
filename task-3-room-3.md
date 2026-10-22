@@ -1,1 +1,2 @@
-Adriana
+- Adriana
+- Caterina Croci
